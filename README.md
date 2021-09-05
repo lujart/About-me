@@ -17,8 +17,8 @@ let's get to work together to achieve exactly that.
 
 Please feel free to reach me on:
 
-email: luisarturocastillo@yahoo.com
-Mobile: +64.22.064.2851
+email: luisarturocastillo@yahoo.com /
+Mobile: +64.22.064.2851 /
 LinkedIn: Luis A. Castillo
 
 I look forward to getting in contact with you!
