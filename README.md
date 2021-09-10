@@ -12,7 +12,7 @@ Being quite passionate about teamwork and collaboration, I am looking forward to
 group of people, with whom I get to reach my full potential towards creating and implementing
 new ideas that help to shape the world of the future. 
 
-It does not scape from me the big resposibility we all have to leave a positive footprint behind in 
+It does not scape from me the big responsibility we all have to leave a positive footprint behind in 
 everything we do. So, let's get to work together to achieve exactly that. 
 
 Please feel free to reach me on:
